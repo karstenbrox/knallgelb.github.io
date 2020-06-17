@@ -7,3 +7,12 @@ Es handelt sich bei dem Charakter um eine Ente in einem Superheldenkostüm. Eher
 * hat immer einen guten Spruch drauf
 * besiegt, mit Schwierigkeiten, immer seine Gegner
 * liebt vermutlich auch Schokokekse
+
+Darkwing Duck said: 
+
+> „Kein Wunder, du glaubst ja auch noch an den
+> Osterhasen.“
+> „Den Osterhasen gibt es nicht?“
+> Darkwing Duck – Der Schrecken der
+> Bösewichte
+> Darkwing und Goliath

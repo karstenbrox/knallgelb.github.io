@@ -16,3 +16,5 @@ Darkwing Duck said:
 > Darkwing Duck – Der Schrecken der
 > Bösewichte
 > Darkwing und Goliath
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/5/5d/C2E2_2016_Contest_-_Darkwing_Duck_%2834012904412%29.jpg" />
